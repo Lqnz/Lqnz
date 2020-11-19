@@ -1,3 +1,2 @@
-#Bio:
-
-Hello! I'm Lanz and I archive Minecraft hacked clients and probably that's all.
+# Bio:
+- **Hello! I'm Lanz. A Minecraft hacked client archiver and learning HTML at the moment**
