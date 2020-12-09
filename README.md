@@ -1,5 +1,4 @@
-# Bio:
-- **Hello! I'm Lanz. A Minecraft hacked client archiver and learning HTML at the moment**<br>
-- **Join my client archive, No pressure though:**<br>
-https://discord.gg/JWqJQk2
+# Bio
+I'm no longer associated with the Lanz-Client-Archive due to reason I don't wanna talk about.<br>
+So I guess I'm just a random no-name lol
 
