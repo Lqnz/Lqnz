@@ -1,4 +1,5 @@
 # Bio
-I'm no longer associated with the Lanz-Client-Archive due to reason I don't wanna talk about.<br>
-So I guess I'm just a random no-name lol
+I'm no longer associated with the Lanz-Client-Archive anymore because<br>
+I got sick of it and feeling burnt out so yeah, I'm now just a random no-name<br><br>
 
+- Lanz or Gisc
