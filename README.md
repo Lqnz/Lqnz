@@ -1,6 +1,6 @@
 # ● Bio
 A stupid block game anarchist since May 23rd 2019.<br>
-I archive **old**, **defunct**, and **discountinued** *utility mods*. Nothing too special.<br>
+I archive **old**, **defunct**, and **discountinued** anarchy *utility mods*. Nothing too special tho<br>
 
 
 # ○ My Social Stuff
